@@ -7,6 +7,6 @@
 - Minha cor favorita 💘
 - Sou comprometida💌
 - Sou brasileira🇧🇷
-  Entre em contato comigo pelo email: carvalho.oliveira.lorena@escola.pr.gov.br
+-  Entre em contato comigo pelo email: carvalho.oliveira.lorena@escola.pr.gov.br
 
-- ![.](https://media1.tenor.com/m/id1pdVOxeeQAAAAC/moana-moana-2.gif)
+ ![.](https://media1.tenor.com/m/id1pdVOxeeQAAAAC/moana-moana-2.gif)
